@@ -4,7 +4,7 @@
 
 * ⭐ **[Just Dance 2025 PC](https://discord.gg/nqAjYsgxUM)** - PC / [Scoring Effects](https://discord.gg/7aycwaGVph)
 * ⭐ **[Just Dance Melody](https://discord.gg/mitchy)** - Wii / Wii U / Switch / Xbox 360 / PC (Non-Crack Only)
-* ⭐**[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC (Non-Crack Only)
+* ⭐ **[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC (Non-Crack Only)
 * [Just Dance Asia](https://discord.gg/mitchy) - Wii / Wii U / Switch / Xbox 360 / PC (Non-Crack Only)
 * [Just Dance Minus](https://discord.gg/GQHcQFGNt9) - Switch
 * [Just Dance MP3](https://discord.gg/q8um6WzT5t) - Wii / Switch
