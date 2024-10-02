@@ -4,10 +4,10 @@
 
 * ⭐ **[Just Dance 2025 PC](https://discord.gg/nqAjYsgxUM)** - PC / [Scoring Effects](https://discord.gg/7aycwaGVph)
 * ⭐ **[Just Dance Melody](https://discord.gg/mitchy)** - Wii / Wii U / Switch / Xbox 360 / PC (Closed Beta)
-* ⭐ **[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC (Closed Beta)
-* [Just Dance Party](https://discord.gg/rzfY3r2emH) - PC / Switch
+* ⭐🛜 **[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC (Closed Beta)
+* 🛜 [Just Dance Party](https://discord.gg/rzfY3r2emH) - PC / Switch
+* 🛜 [Just Dance Midnight](https://discord.gg/NhV2MU4BMC) - Switch / PC
 * [Just Dance Stars](https://discord.gg/5eS5dUS8) - (Closed Beta) PC / Switch
-* [Just Dance Midnight](https://discord.gg/NhV2MU4BMC) - Switch / PC
 * [Just Dance Asia](https://discord.gg/mitchy) - Wii / Wii U / Switch / Xbox 360 / PC (Non-Crack Only)
 * [Just Dance MP3](https://discord.gg/q8um6WzT5t) - Wii / Switch
 * [Just Dance Rainbow](https://discord.gg/9SQqSQgWej) - Wii / Switch / Xbox 360
@@ -28,3 +28,7 @@
 * [Modding House](https://discord.gg/aBwTFZSDFd) - Modding Tools / Tutorials
 
 Suggestions? Create a pull request on [Github](https://github.com/Numerosityy/jdmegathread).
+
+## Emoji Legend
+⭐ Recommendations
+🛜 Has World Dance Floor/Online
