@@ -2,15 +2,15 @@
 
 ## Mods
 
-* ⭐ **[Just Dance 2025/4/3/2 PC (Dreyn)](https://discord.gg/nqAjYsgxUM)** - PC / [Scoring Effects](https://discord.gg/7aycwaGVph)
+* ⭐ **[Just Dance 2025/24/23/22 PC (Dreyn)](https://discord.gg/nqAjYsgxUM)** - PC / [Scoring Effects](https://discord.gg/7aycwaGVph)
 * ⭐ **[Just Dance.EXE](https://discord.gg/2bTTNgtRBg)** - PC (Fan-Game) / Downloadable Content
 * ⭐ **[Just Dance Melody](https://discord.gg/mitchy)** - Wii / Wii U / Switch / Xbox 360 / PC (Closed Beta)
 * ⭐🛜 **[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC (Closed Beta)
 * 🛜 [Just Dance Party](https://discord.gg/rzfY3r2emH) - Switch / PC
 * 🛜 [Just Dance Midnight](https://discord.gg/NhV2MU4BMC) - Switch / PC
-* [Just Dance 2025/4 Xbox 360 Edition](https://discord.gg/9SQqSQgWej) - Xbox 360
-* [Just Dance 2025/4/3 Wii Edition](https://discord.gg/NJg2jdEast) - Wii
-* [Just Dance 2025/4/3 PC (DieguinDG/maryposa)](https://discord.gg/F35fr4APNJ) - PC (Non-Crack Only)
+* [Just Dance 2025/24 Xbox 360 Edition](https://discord.gg/9SQqSQgWej) - Xbox 360
+* [Just Dance 2025/24/23 Wii Edition](https://discord.gg/NJg2jdEast) - Wii
+* [Just Dance 2025/24/23 PC (DieguinDG/maryposa)](https://discord.gg/F35fr4APNJ) - PC (Non-Crack Only)
 * [Just Dance Icons](https://discord.gg/KDmHZA9naM) - Wii / Switch / PC
 * [Just Dance Stellar](https://discord.gg/gwybFNQGTv) - PC
 * [Just Dance Stars](https://discord.gg/5eS5dUS8) - (Closed Beta) PC / Switch
