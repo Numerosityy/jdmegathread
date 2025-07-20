@@ -3,14 +3,14 @@
 ## Mods
 
 * ⭐ **[Just Dance Melody](https://discord.gg/mitchy)** - Wii / Wii U / Switch / Xbox 360 / PC
-* ⭐🛜 **[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC
+* ⭐🛜 **[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC / Patreon Exclusive Features
 * ⭐ **[Just Dance 2025/24/23/22 PC (Dreyn)](https://discord.gg/nqAjYsgxUM)** - PC / [Scoring Effects](https://discord.gg/7aycwaGVph)
-* ⭐ **[Just Dance Legacy](https://discord.gg/swJUhPG6JT)** - Switch (Offline)
+* ⭐ **[Just Dance Legacy](https://discord.gg/swJUhPG6JT)** - Switch (Offline) / Closed Beta Online (PC / Switch)
 * ⭐ **[Just Dance Sky](https://discord.gg/VeNBwm32)** - Switch / PC
 * [Just Dance 2025/24 Xbox 360 Edition](https://discord.gg/9SQqSQgWej) - Xbox 360
 * [Just Dance 2025/24/23 Wii Edition](https://discord.gg/NJg2jdEast) - Wii
 * [Just Dance 2025/24/23 PC (DieguinDG/maryposa)](https://discord.gg/F35fr4APNJ) - PC (Non-Crack Only)
-* [Just Dance.EXE](https://discord.gg/2bTTNgtRBg)** - PC (Fan-Game) / Downloadable Content / Paid Features
+* [Just Dance.EXE](https://discord.gg/2bTTNgtRBg) - PC (Fan-Game) / Downloadable Content / Paid Features
 * [Just Dance Icons](https://discord.gg/KDmHZA9naM) - Wii / Switch / PC
 * [Just Dance Stellar](https://discord.gg/gwybFNQGTv) - PC
 * [Just Dance Stars](https://discord.gg/5eS5dUS8) - (Closed Beta) Switch / PC
