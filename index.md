@@ -6,7 +6,7 @@
 * ⭐🛜 **[Just Dance Melody Online](https://discord.gg/mitchy)** - Switch / PS4 / PS5 / PC
 * ⭐ **[Just Dance 2025/24/23/22 PC (Dreyn)](https://discord.gg/nqAjYsgxUM)** - PC / [Scoring Effects](https://discord.gg/7aycwaGVph)
 * ⭐ **[Just Dance Legacy](https://discord.gg/swJUhPG6JT)** - Switch (Offline)
-* ⭐ **[Just Dance Sky](https://discord.gg/VeNBwm32) - Switch / PC
+* ⭐ **[Just Dance Sky](https://discord.gg/VeNBwm32)** - Switch / PC
 * [Just Dance 2025/24 Xbox 360 Edition](https://discord.gg/9SQqSQgWej) - Xbox 360
 * [Just Dance 2025/24/23 Wii Edition](https://discord.gg/NJg2jdEast) - Wii
 * [Just Dance 2025/24/23 PC (DieguinDG/maryposa)](https://discord.gg/F35fr4APNJ) - PC (Non-Crack Only)
