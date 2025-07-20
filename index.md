@@ -29,8 +29,9 @@
 
 * ⭐ **[Just Dance Wiki](https://justdance.fandom.com/wiki/Home)** - Assets / Map Info
 * ⭐ **[Just Dance Helper](https://discord.gg/just-dance-helper-jdh-800263354924531762)** - Asset Provider Bot / Leaks
-* ⭐ **[Ferris Dancing](https://github.com/Kriskras99/ferris_dancing)** - Modding Tools / Terminal Based
+* ⭐ **[Party Service](https://github.com/PartyService)** - Modding Tools / Create a Custom Just Dance Server
 * ⭐ **[Rayman Control Panel](https://github.com/RayCarrot/RayCarrot.RCP.Metro)** - Modding Tools / GUI Included
+* [Ferris Dancing](https://github.com/Kriskras99/ferris_dancing) - Modding Tools / Terminal Based
 * [Woody's Just Dance Tools](https://github.com/WodsonKun/JustDanceTools) - Conversion Tools
 * [Modding House](https://discord.gg/aBwTFZSDFd) - Modding Tools / Tutorials
 * [Wiz's Workplace](https://discord.gg/gwybFNQGTv) - Asset Archive
